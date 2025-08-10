@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-Pipes up pipelines and organizes everything I come up with and creates.
+Pipes up pipelines and organizes everything xaoex apprentices and founders and friends + fam, come up with and creates. Us 4.
 
 This is everything completely, well defined, structured, with enterprise org ops.
 
