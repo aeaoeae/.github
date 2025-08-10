@@ -9,3 +9,6 @@ This is everything completely, well defined, structured, with enterprise org ops
 Infrastructure, applications, etc, for enterprise org ops situation.
 
 Everything generated and seamlessly coded together with documentation and information, APIs etc.
+
+-------------
+Samsung Galaxy S10 Tab Ultra x Work Profile
