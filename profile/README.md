@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-Legal representative entity / enterprise org ops.
+(Legal) Ops representative entity / enterprise org ops.
 
 Pipes up pipelines and organizes everything xaoex apprentices and founders and friends + fam, come up with and creates. Us 4.
 
